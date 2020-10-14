@@ -11,3 +11,12 @@ To get an passive understanding of a language and get a natural grip of the use 
 * Going on holidays in the country where the language is spoken (unfortunately not pandemic-friendly)
 * listening to podcasts in the language
 * watching youtube videos about topics you're interested and also familiar with
+
+
+## Working with Books
+
+After you watched and listened to a lot of ressources in your target language, you can now work with books. You have a feeling about how that languages sounds and now you can start to actually learn different things. I recommend using a sentence based approach.
+
+* Assimil if it is available in your target language
+* children books are great to start because they use easy language (preferably those with audio)
+* language books with good audio quality
