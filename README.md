@@ -8,6 +8,6 @@ To get an passive understanding of a language and get a natural grip of the use 
 
 * Watching childrens cartoons in the language while working
 * Listening to music in the language
-* Going on holidays in the country where the language is spoken (not pandemic-friendly)
-*listening to podcasts in the language
-*watching youtube videos about topics you're interested and also familiar with
+* Going on holidays in the country where the language is spoken (unfortunately not pandemic-friendly)
+* listening to podcasts in the language
+* watching youtube videos about topics you're interested and also familiar with
