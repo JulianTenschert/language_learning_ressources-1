@@ -1,6 +1,10 @@
 # Language Learning Ressources
 
-You want to learn a language but you're not sure where to start? Here you can find methods that worked for me in my language learning journey.
+You want to learn a language but you're not sure where to start? Here you can find methods that worked for me in my language learning journey. Others are open to contribute.
+
+## Contribute
+
+You can contribute to this small repository with your language 
 
 ## Passive Understanding
 
@@ -20,3 +24,17 @@ After you watched and listened to a lot of ressources in your target language, y
 * Assimil if it is available in your target language
 * children books are great to start because they use easy language (preferably those with audio)
 * language books with good audio quality
+
+## Working with Audio
+
+## Writing Skills
+
+## Talk To Others
+
+## Grammar
+
+## Different Writing Systems
+
+## Motivation To Learn
+
+## Setting Goals
