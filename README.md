@@ -25,13 +25,28 @@ After you watched and listened to a lot of ressources in your target language, y
 * children books are great to start because they use easy language (preferably those with audio)
 * language books with good audio quality
 
-## Listening And Audio
+## Working with Audio
 
-## Improving Writing Skills
+
 
 ## Learning A Language With Another Writing System
 
-## Motivation For Learning
 
-## Setting Language Goals
 
+## Writing Skills
+
+
+
+## Talk To Others
+
+
+
+## Grammar
+
+
+
+## Motivation To Learn
+
+
+
+## Setting Goals
