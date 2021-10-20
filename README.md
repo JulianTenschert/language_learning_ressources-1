@@ -59,9 +59,13 @@ Language apps can definitely help but keep in mind that writing and listening is
 
 ## Language Websites
 
+There are a lot of websites for learning a language. You can just google the language and often times you find some good ones. I can recommend those where you can find language exchange partners or those that teach you basics.
+
+* Try to find a website that has good beginner-friendly basics of your taget language. Those with audio are better most of the time – especially as a beginner.
+* iTalki is a good website to let others check your writing and to find a language partner.
 
 
-## Talk To Others
+## Talking To Others In Your Target Language
 
 
 
