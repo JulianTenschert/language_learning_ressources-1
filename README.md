@@ -41,6 +41,19 @@ There are languages that only have a couple of other letters (e. g. ö, ł, œ, 
 
 ## Writing Skills
 
+Writing is not important for everyone when you can easily write with your smartphone that is pretty smart when it comes to writing in your target language. You don't have to be able to write the words with a pencil and with some smartphones you don't have to know exactly how to write your e. g. Chinese character – you only have to know the pronounciation and be able to recognise the right character. But I strongly encourage everyone to also be able to write in your target language. It helps a lot.
+
+* write at least a little everyday in your target language – with a pen and not with your thumbs on a phone
+* You learned a difficult world today? Write it down.
+* Also go back to the basics you already learned.
+
+
+## Language Apps
+
+
+
+## Language Websites
+
 
 
 ## Talk To Others
