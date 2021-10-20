@@ -50,6 +50,11 @@ Writing is not important for everyone when you can easily write with your smartp
 
 ## Language Apps
 
+Language apps can definitely help but keep in mind that writing and listening is very important, too. So most of the time apps are not enough. The good thing is: You can take them pretty much everywhere you go and some don't even need an internet connection.
+
+* have one or more language apps on your phone for commuting or when you have to wait unexpectedly
+* Try to write down new words on a small piece of paper it possible. It helps a lot with not forgetting new words.
+* Apps will only get you so far. 
 
 
 ## Language Websites
