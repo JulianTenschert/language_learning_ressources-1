@@ -29,6 +29,8 @@ After you watched and listened to a lot of ressources in your target language, y
 
 If you want to learn new language skills, try Audible! It's a really fun way of learning new skills in whatever new language you'd like to learn. It's really great! (Thanks Jeff!)
 
+Edit: Even in 2021 Audible is just great!
+
 
 ## Learning A Language With Another Writing System
 
