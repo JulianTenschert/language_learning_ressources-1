@@ -78,3 +78,7 @@ There are a lot of websites for learning a language. You can just google the lan
 
 
 ## Setting Goals
+
+## Coding Skills
+
+...
